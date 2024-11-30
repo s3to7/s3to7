@@ -1,4 +1,29 @@
-## Hi there 👋
+### if you think you're the biggest riko fan think again
+- i go by many names, but the most common ones are: j, jiwoo, and zhiyu!
+- i always leave pt on in the bg while i do work and stuff so pls whisper me if i dont respond!!
+- my discord is kiranobz; pls tell me who you are or if youre sending a req so ik its you ><
+- im a okay with being friends with everyone!!! send me a friend request i will definitely accept!!
+- im almost always near spawn :3
+
+### my interests ... 
+#### these are not listed in order
+- jujutsu kaisen
+  - btw i am a hugehugehuge fan of jjk girls... my favs of all time are (in this order):
+    - riko, shoko, nobara, miwa, everyone else
+  - i like geto too :3 and gojo :3 hashtag sashisu for lifers
+- bloodborne
+- fighting games (blazblue, unib, melty blood, a bit of guilty gear)
+- nier
+- pokemon
+- mouthwashing
+- your turn to die
+- comics
+  - i like!!! the batfam the most, nightwing is my favest fav... also kyle rayner
+  - im a ttg liker sorry
+  - im very big into dc BUTTTT in terms of marvel my favs are shangchi and linlie :)) 
+- devil may cry
+- metal gear
+
 
 <!--
 **s3to7/s3to7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
