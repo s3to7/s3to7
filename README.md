@@ -5,10 +5,10 @@
 - my discord is kiranobz; pls tell me who you are or if youre sending a req so ik its you ><
 - im a okay with being friends with everyone!!! send me a friend request i will definitely accept!!
 - im almost always near spawn :3
-- i won't write a dni because i'm pretty loose with who i let interact with me, just don't be weird and always be respectful! ><
 
 ### to note
 - i usually associate myself with, or like to present myself as certain characters... mostly amanai riko ^^; so calling me riko is also veryveryvery okay too
+- i won't write a proper dni because i'm pretty loose with who i let interact with me, but please don't interact if you're a minor! otherwise, just don't be weird and always be respectful! ><
 
 ### my interests ... 
 #### these are not listed in order
