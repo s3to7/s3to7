@@ -1,9 +1,11 @@
 ### if you think you're the biggest riko fan think again
 - i go by many names, but the most common ones are: j, jiwoo, and zhiyu!
+- i have a few disorders i would not like to explicitly disclose... but please be patient with me! i have frequent mood swings and my personality might change a lot!
 - i always leave pt on in the bg while i do work and stuff so pls whisper me if i dont respond!!
 - my discord is kiranobz; pls tell me who you are or if youre sending a req so ik its you ><
 - im a okay with being friends with everyone!!! send me a friend request i will definitely accept!!
 - im almost always near spawn :3
+- i won't write a dni because i'm pretty loose with who i let interact with me, just don't be weird and always be respectful! ><
 
 ### my interests ... 
 #### these are not listed in order
@@ -23,6 +25,7 @@
   - im very big into dc BUTTTT in terms of marvel my favs are shangchi and linlie :)) 
 - devil may cry
 - metal gear
+- kpop/krnb (ask me about my favs!!!)
 
 
 <!--
