@@ -1,3 +1,6 @@
+![s-l1600](https://github.com/user-attachments/assets/bc95b7d4-64b6-4b08-b01d-ed2882a2c91c)
+
+
 ### if you think you're the biggest riko fan think again
 - i go by many names, but the most common ones are: j, jiwoo, and zhiyu!
 - i have a few disorders i would not like to explicitly disclose... but please be patient with me! i have frequent mood swings and my personality might change a lot!
