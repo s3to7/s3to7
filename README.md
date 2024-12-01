@@ -1,5 +1,4 @@
-![s-l1600](https://github.com/user-attachments/assets/bc95b7d4-64b6-4b08-b01d-ed2882a2c91c)
-
+![Untitled design(12)](https://github.com/user-attachments/assets/040276ab-23ac-406e-8186-8ff5aee92cb6)
 
 ### if you think you're the biggest riko fan think again
 - i go by many names, but the most common ones are: j, jiwoo, and zhiyu!
