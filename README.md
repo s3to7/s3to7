@@ -12,26 +12,6 @@
 - i usually associate myself with, or like to present myself as certain characters... mostly amanai riko ^^; so calling me riko is also veryveryvery okay too
 - i won't write a proper dni because i'm pretty loose with who i let interact with me, but please don't interact if you're a minor! otherwise, just don't be weird and always be respectful! ><
 
-### my interests ... 
-#### these are not listed in order
-- jujutsu kaisen
-  - btw i am a hugehugehuge fan of jjk girls... my favs of all time are (in this order):
-    - riko, shoko, nobara, miwa, everyone else
-  - i like geto too :3 and gojo :3 hashtag sashisu for lifers
-- bloodborne
-- fighting games (blazblue, unib, melty blood, a bit of guilty gear)
-- nier
-- pokemon
-- mouthwashing
-- your turn to die
-- comics
-  - i like!!! the batfam the most, nightwing is my favest fav... also kyle rayner
-  - im a ttg liker sorry
-  - im very big into dc BUTTTT in terms of marvel my favs are shangchi and linlie :)) 
-- devil may cry
-- metal gear
-- kpop/krnb (ask me about my favs!!!)
-
 
 <!--
 **s3to7/s3to7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
