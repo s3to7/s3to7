@@ -2,9 +2,11 @@
 
 ### if you think you're the biggest riko fan think again
 - i go by many names, but the most common ones are: j, jiwoo, and zhiyu!
-- i haven't been feeling well as of late, i'm sorry. unless i consider you a close friend (uge, joey), please don't expect me to act as enthusiastic as i usually am!
 - i have a few disorders i would not like to explicitly disclose... but please be patient with me! i have frequent mood swings and my personality might change a lot!
 - i always leave pt on in the bg while i do work and stuff so pls whisper me if i dont respond!!
+- my discord is kiranobz; pls tell me who you are or if youre sending a req so ik its you ><
+- im a okay with being friends with everyone!!! send me a friend request i will definitely accept!!
+- im almost always near spawn :3
 
 ### to note
 - i usually associate myself with, or like to present myself as certain characters... mostly amanai riko ^^; so calling me riko is also veryveryvery okay too
