@@ -5,11 +5,11 @@
 - i have a few disorders i would not like to explicitly disclose... but please be patient with me! i have frequent mood swings and my personality might change a lot!
 - i always leave pt on in the bg while i do work and stuff so pls whisper me if i dont respond!!
 - im a okay with being friends with everyone!!! send me a friend request i will definitely accept!! c+h is also okay, unless you see i'm with someone else already ^^
-- im almost always near spawn :3
+- shipping is alright, i'm ok with any ship ^^ 
 
 ### to note
 - i heavily associate myself with/like to present myself as amanai riko. this sounds childish but try not to speak badly about her around me!! i am the only riko ever. if you think you are riko THINK AGAIN!!! OR DNI!!!
-- i won't write a proper dni because i'm pretty loose with who i let interact with me, but please don't interact if you're a minor! otherwise, just don't be weird and always be respectful! ><
+- i won't write a proper dni because i'm pretty loose with who i let interact with me, but please don't interact if you're a minor! otherwise, just always be respectful! ><
 
 
 <!--
