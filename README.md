@@ -1,8 +1,6 @@
 > ![Untitled design(12)](outilycus.png)
 > ### C+H & ANY SHIPPING OK.
-> i always leave pt on in the big while i do work so please whisper me if i don't respond.
-> 
-> won't write a proper dni because i'm pretty loose with who i let interact with me, just be respectful (and not a minor). 
+> i always leave pt on in the big while i do work so please whisper me if i don't respond. won't write a proper dni because i'm pretty loose with who i let interact with me, just be respectful (and not a minor). 
 
 
 <!--
