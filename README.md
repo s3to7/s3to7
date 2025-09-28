@@ -1,8 +1,15 @@
-> ![Untitled design(12)](outilycus.png)
-> ### C+H & ANY SHIPPING OK.
-> i always leave pt on in the bg while i do work so please whisper me if i don't respond. won't write a proper dni because i'm pretty loose with who i let interact with me, just be respectful (and not a minor). 
+![Untitled design(12)](https://github.com/user-attachments/assets/040276ab-23ac-406e-8186-8ff5aee92cb6)
 
+### if you think you're the biggest riko fan think again
+- i don't have a name but you can call me outis, or riko!! :D
+- i dont have a gender but the way i present myself in appearance and in personality can change from time to time >< so pls be patient,,
+- i always leave pt on in the bg while i do work and stuff so pls whisper me if i dont respond!!
+- im a okay with befriending anyone!!! send me a friend request i will definitely accept!! c+h is also okay, unless you see i'm with someone else already ^^
+- shipping is alright, i'm ok with any ship ^^ 
 
+### to note
+- i heavily associate myself with/like to present myself as amanai riko. this sounds childish but try not to speak too badly about her around me!! i am the only riko ever. if you think you are riko THINK AGAIN!!! OR DNI!!!
+- i won't write a proper dni because i'm pretty loose with who i let interact with me, but please don't interact if you're a minor! otherwise, just always be respectful! ><
 <!--
 **s3to7/s3to7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
