@@ -1,6 +1,6 @@
-> ![Untitled design(12)](outilycus.png)
-> ### C+H & ANY SHIPPING OK.
-> i always leave pt on in the bg while i do work so please whisper me if i don't respond. won't write a proper dni because i'm pretty loose with who i let interact with me, just be respectful (and not a minor).
+> ![Untitled design(12)](rikobun.png)
+> ### C+H & ANY SHIPPING OK!!
+> i always leave pt on in the bg while i do work so please whisper me if i don't respond. won't write a proper dni because i'm pretty loose with who i let interact with me, just be respectful ^^
 
 <!--
 **s3to7/s3to7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
